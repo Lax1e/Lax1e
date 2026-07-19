@@ -1,4 +1,4 @@
-## wip
+## Overall info in the strawpage, heavy marshall kin & comf he's been my sweetest favorite forever now. Doubles? Um... Idk if you exist TBH,,, The fandom is kind of small like rlly small, but if there are iwec.                  Also I'm aaaaaa Red yume, from like, rainbow friends, what's your thing with dying fandoms Laxie..? I don't know, shutup T_T. So, idk if I'm sharing, prolly selective cuz I'm too scared to say "dni.", but iwec, it miiiight make me uncomfortable! That's all ig, but also if we become friends you might see me talk to myself like i did right here in this readme, it's.. i js do that ok? 🥺
 
 <!--
 **Lax1e/Lax1e** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
