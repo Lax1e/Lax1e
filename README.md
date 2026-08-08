@@ -1,10 +1,13 @@
-## Overall info in the strawpage, heavy marshall kin & comf he's been my sweetest favorite forever now. Doubles? Um... Idk if you exist TBH,,, The fandom is kind of small like rlly small, but if there are iwec.                  Also I'm aaaaaa Red yume, from like, rainbow friends, what's your thing with dying fandoms Laxie..? I don't know, shutup T_T. So, idk if I'm sharing, prolly selective cuz I'm too scared to say "dni.", but iwec, it miiiight make me uncomfortable! That's all ig, but also if we become friends you might see me talk to myself like i did right here in this readme, it's.. i js do that ok? 🥺
+## Overall info in the strawpage, heavy marshall kin & comf he's been my sweetest favorite forever now. Doubles? Um... Idk if you exist TBH,,, The fandom is kind of small like rlly small, but if there are iwec. Also I'm aaaaaa Red yume, from like, rainbow friends, i have a lazy strawpage on that it's still a wip tho.
+
+### PAW PATROL & RAINBOW FRIENDS FNDMD INT OMG?? PLS I BEG ON MY KNEES.... especially Red/hj
 
 <img width="341" height="55" alt="image" src="https://github.com/user-attachments/assets/b3e8db31-e165-4899-ae91-a02228d24f62" />
 <img width="423" height="59" alt="image" src="https://github.com/user-attachments/assets/e8487118-3950-46e1-82c3-825065ba6b0f" />
 
 
-TYSM @pt-walk-of-fame and @pt-hall-of-media!!!!
+TYSM @pt-walk-of-fame and @pt-hall-of-media!!!! And more tbh.....!
+
 
 
 <!--
