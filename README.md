@@ -1,3 +1,5 @@
+<img align="centre" src="https://visitor-badge.laobi.icu/badge?page_id=lax1e.visitor-badge&left_text=Fires%20put%20out&left_color=%23df5858&right_color=%23eaa23e" alt="visitor badge"/>
+
 <h1 align="center">$\color{#ED421F}{\text{Pony Town's Marshall !}}$</h1>
 
 <p align="center">$\color{#F0B035}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them , he/him tolerated}}$</p>
