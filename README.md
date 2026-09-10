@@ -14,3 +14,5 @@
 <p align="center">$\color{#E6360E}{\text{DON'T copy my skins or post them anywhere ! Ask for inspo}}$</p> 
 
 <h1 align="center">$\color{#ED421F}{\text{Ty for reading ! Sign my ata / straw (..◜ᴗ◝..)}}$</h1>
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=mono&pause=1000&color=F74F1F&center=true&width=435&lines=I'm+fired+up+!!;I'm+ready+for+a+ruff+ruff+rescue+!!;Wait+for+mee+!!+%EA%89%82%E0%AB%AE%28%C2%B0%E2%96%A1%C2%B0'%CB%B6%29%E1%83%90" alt="Typing SVG" align="centered"/></a>
