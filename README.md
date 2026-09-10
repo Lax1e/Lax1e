@@ -1,26 +1,12 @@
-## Overall info in the strawpage, heavy marshall kin & comf he's been my sweetest favorite forever now. Doubles? Um... Idk if you exist TBH,,, The fandom is kind of small like rlly small, but if there are iwec. Also I'm aaaaaa Red yume, from like, rainbow friends, i have a lazy strawpage on that it's still a wip tho.
+<h1 align="center">$\color{#ED421F}{\text{Pony Town's Marshall !}}$</h1>
 
-### PAW PATROL & RAINBOW FRIENDS FNDMD INT OMG?? PLS I BEG ON MY KNEES.... especially Red/hj
+<p align="center">$\color{#F0B035}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them , he/him tolerated}}$</p>
 
-<img width="341" height="55" alt="image" src="https://github.com/user-attachments/assets/b3e8db31-e165-4899-ae91-a02228d24f62" />
-<img width="423" height="59" alt="image" src="https://github.com/user-attachments/assets/e8487118-3950-46e1-82c3-825065ba6b0f" />
+<p align="center">$\color{#F08935}{\text{Marshall Fict kin , Mirrorsharing Red yume ( from rainbow friends ) . C x H encouraged if friend !}}$</p>
+<h5 align="center">$\color{#E06F2B}{\text{Though if not I might be confused / uncomfortable ,, (๑•́ -•̀)}}$</h5>
 
+<p align="center">$\color{#E35720}{\text{If I'm being covered please whisper me ! Might've hidden the person or we're just cuddling !}}$</p>
 
-TYSM @pt-walk-of-fame and @pt-hall-of-media!!!! And more tbh.....!
+<p align="center">$\color{#E33D20}{\text{If I ever wear a Dandy's world pony ( which I prolly won't ) I do NOT support Qw*l or R*x}}$</p>
 
-
-
-<!--
-**Lax1e/Lax1e** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<h1 align="center">$\color{#ED421F}{\text{Ty for reading ! Sign my ata / straw (..◜ᴗ◝..)}}$</h1>
