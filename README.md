@@ -4,8 +4,8 @@
 
 <p align="center">$\color{#EBA521}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them , he/him tolerated}}$</p>
 
-<p align="center">$\color{#E38417}{\text{Marshall Fict kin , Mirrorsharing Red yume ( from rainbow friends ) . C x H encouraged if friend !}}$</p>
-<h5 align="center">$\color{#E36A0E}{\text{Though if not I might be confused / uncomfortable ,, (๑•́ -•̀)}}$</h5>
+<p align="center">$\color{#E38417}{\text{Marshall Fict kin , Mirrorsharing Red yume ( from rainbow friends ) . C x H encouraged if know you ! ( in a good way ) !}}$</p>
+<h5 align="center">$\color{#E36A0E}{\text{Though if not I will most likely be uncomfortable , ask if i don't know you ,, (๑•́ -•̀)}}$</h5>
 
 <p align="center">$\color{#E85C10}{\text{If I'm being covered please whisper me ! Might've hidden the person or we're just cuddling !}}$</p>
 
