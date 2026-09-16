@@ -1,4 +1,4 @@
-<img src="https://visitor-badge.laobi.icu/badge?page_id=lax1e.visitor-badge&left_text=Fires%20put%20out&left_color=%23d73c63&right_color=%23ccf019&logo=vite" alt="visitor badge"/>
+<img align="center" src="https://visitor-badge.laobi.icu/badge?page_id=lax1e.visitor-badge&left_text=Fires%20put%20out&left_color=%23d73c63&right_color=%23ccf019&logo=vite" alt="visitor badge"/>
 
 ## <h1 align="center">$\color{#E82A5F}{\text{Pony Town's Marshall !}}$</h1>
 
@@ -18,3 +18,7 @@
 <h1 align="center">$\color{#E82A5F}{\text{Ty for reading ! Sign my ata / straw (..◜ᴗ◝..)}}$</h1>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=mono&pause=1000&color=C5DB1D&center=true&width=435&lines=I'm+fired+up+!!;I'm+ready+for+a+ruff+ruff+rescue+!!;Wait+for+mee+!!+%EA%89%82%E0%AB%AE%28%C2%B0%E2%96%A1%C2%B0'%CB%B6%29%E1%83%90" alt="Typing SVG" align="centered"/></a>
+
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7ae2c6e9-b694-4b62-b7d0-bf3ebd302bdc" align="center"/>
+
+
