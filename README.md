@@ -2,7 +2,7 @@
 
 ## <h1 align="center">$\color{#ED3315}{\text{Pony Town's Marshall !}}$</h1>
 
-<p align="center">$\color{#ED4B15}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them , he/him tolerated}}$</p>
+<p align="center">$\color{#ED4B15}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them}$</p>
 
 <p align="center">$\color{#ED4B15}{\text{Marshall Fictkin + fictflect , Mirrorsharing Red yume ( from rainbow friends ) . C x H encouraged if know you ! ( in a good way ) !}}$</p>
 <h5 align="center">$\color{#ED4B15}{\text{Though if not I will most likely be uncomfortable , ask if i don't know you ,, (๑•́ -•̀)}}$</h5>
